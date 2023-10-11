@@ -6,4 +6,11 @@ Sem 7:
 https://drive.google.com/drive/folders/15RbVgJ4bXyustVAQAoNNhqc37G1s45OU
 
 https://fcrit-my.sharepoint.com/:f:/g/personal/trupti_lotlikar_fcrit_ac_in/EjcIRcaNyVVAosMjCGsxJiAB5ufHK2oLlHFMknz7ccvDcA?e=BwsvQ8
+
 https://fcrit-my.sharepoint.com/:f:/g/personal/trupti_lotlikar_fcrit_ac_in/Em6GmFqQNdNEo1xrM7vo4sYBYyx4funI_aPcD8fUB7I7xg?e=J9trdy
+
+https://fcrit-my.sharepoint.com/:f:/g/personal/archana_shirke_fcrit_ac_in/EhtL_Ivaka9Jv7t_PfXjxvUB4lYgDuL6U03IA9fjARCjGg?e=X0NBf2
+
+https://fcrit-my.sharepoint.com/:f:/g/personal/trupti_lotlikar_fcrit_ac_in/Em6GmFqQNdNEo1xrM7vo4sYBYyx4funI_aPcD8fUB7I7xg?e=J9trdy
+
+https://fcrit-my.sharepoint.com/:f:/g/personal/trupti_lotlikar_fcrit_ac_in/EjcIRcaNyVVAosMjCGsxJiAB5ufHK2oLlHFMknz7ccvDcA?e=BwsvQ8
