@@ -1,4 +1,10 @@
 # Miscellaneous
+Sem 8:
+
+BCL Lab:
+https://fcrit-my.sharepoint.com/personal/trupti_lotlikar_fcrit_ac_in/_layouts/15/onedrive.aspx?id=%2Fpersonal%2Ftrupti%5Flotlikar%5Ffcrit%5Fac%5Fin%2FDocuments%2Fblockchain%20lab%20fh2024&ga=1
+
+
 Sem 6:
 https://drive.google.com/drive/folders/1V19_gyVnGyOM0yPXBvbBl2mF2Ls6jk2t
 
