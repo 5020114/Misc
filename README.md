@@ -1,6 +1,9 @@
 # Miscellaneous
 Sem 8:
 
+CCL Lab and PPT:
+https://fcrit-my.sharepoint.com/personal/rupali_deshmukh_fcrit_ac_in/_layouts/15/onedrive.aspx?id=%2Fpersonal%2Frupali%5Fdeshmukh%5Ffcrit%5Fac%5Fin%2FDocuments%2FFH%2024%2FCCS%2FStudy%20material&ga=1
+
 BCL Lab:
 https://fcrit-my.sharepoint.com/personal/trupti_lotlikar_fcrit_ac_in/_layouts/15/onedrive.aspx?id=%2Fpersonal%2Ftrupti%5Flotlikar%5Ffcrit%5Fac%5Fin%2FDocuments%2Fblockchain%20lab%20fh2024&ga=1
 
