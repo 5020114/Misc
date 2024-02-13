@@ -1,6 +1,12 @@
 # Miscellaneous
 Sem 8:
 
+https://fcrit-my.sharepoint.com/:f:/g/personal/archana_shirke_fcrit_ac_in/EvC13tQJq3BFi2iV9eWY3DYB0z6qoi_no_cGGUs8k5pO2g?e=M3X5KT
+
+https://fcrit-my.sharepoint.com/:f:/g/personal/rupali_deshmukh_fcrit_ac_in/ErOgLGbD11tOkl9Sxk0aaC0BDQStuLiGj3-8FRlB_oROuw?e=Zdj4eK
+
+https://fcrit-my.sharepoint.com/:f:/g/personal/trupti_lotlikar_fcrit_ac_in/EjOIppnCZTxLh4SeHkSe6yoBj6QU7eRUvYEE1NJ80gxFnA?e=J8AEG7
+
 CCL Lab and PPT:
 https://fcrit-my.sharepoint.com/personal/rupali_deshmukh_fcrit_ac_in/_layouts/15/onedrive.aspx?id=%2Fpersonal%2Frupali%5Fdeshmukh%5Ffcrit%5Fac%5Fin%2FDocuments%2FFH%2024%2FCCS%2FStudy%20material&ga=1
 
